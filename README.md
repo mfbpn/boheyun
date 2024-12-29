@@ -1,6 +1,6 @@
 # 薄荷云机场官网地址
 
-最新地址：[myu.best](https://myu.best/register?aff=urqYshfe)
+最新地址：[myu.best]()
 
 ## 薄荷云介绍
 
